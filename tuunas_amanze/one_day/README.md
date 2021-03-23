@@ -10,5 +10,5 @@ Licensed by 雨部ツナ(@tuunas_amanze) under CC BY 4.0
 
 ※ この作品は クリエイティブ・コモンズ 表示 4.0 国際ライセンス の下に提供されています。ライセンスの詳細は https://creativecommons.org/licenses/by/4.0/deed.ja でご確認ください。
 
-取得元：Soundcloud
+取得元：SoundCloud
 
